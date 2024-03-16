@@ -1,0 +1,2 @@
+# konidin
+ya konimx pabriknya
